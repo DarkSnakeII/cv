@@ -8,4 +8,5 @@ i study informatics at ionio university at Corfu
 i have worked when i was younger at tourism proffesions
 i love music and football 
 and i am big barcelona  fan 
+HELLO
 
